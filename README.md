@@ -1,4 +1,4 @@
-- Hi, I’m @ItalianTomato26.
+- Hi, I’m @ItalianTomato26 🍅
 
 I'm a hobbyist 3D Artist, Web and Game Developer!
 
